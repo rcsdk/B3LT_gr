@@ -1,3 +1,13 @@
+Brand Concept: I'm an experienced digital designer launching a new brand called B3LT. The "3" in the name symbolizes a buckle, and I want to visually tie this concept into the design. I'll be creating a unique symbol that reflects both the name and the concept.
+
+Company #1: Soccer Betting Information This will focus on providing expert insights and tips for soccer betting, but the branding for this part will be separate from the creative design side.
+
+Company #2: Graphical Creative Design The second part of the brand will focus on custom creative designs for POD products, such as T-shirts, posters, and more.
+
+For the logo, I’m envisioning using the whole 8-ball design, but with half of the number 8 removed. The result would visually resemble a 3, tying back to the name B3LT and its buckle theme. The 8-ball shape makes it visually interesting and suitable for avatars, while the number "3" subtly emphasizes the brand’s identity. This approach keeps it minimal but meaningful.
+
+
+
 im a experienced digital designer entering the pod world - im starting  a brand called B3LT - where the 3 represent the buckle. ill design a symbol for it. ill have 2 companies - one for soccer betting information and one for graphical creative design -  cool shirt, funny posters etc. for the latter I had this idea of an 8 ball black - with only half of the 8 -  as a starting point. the ball is a good symbol once it fits in avatars and so on
 
 
